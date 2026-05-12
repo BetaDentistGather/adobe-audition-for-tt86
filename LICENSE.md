@@ -1,4 +1,4 @@
-# 
+# Adobe Audition for PC | Adobe Audition for Windows professional Tool: multi-track-editing & effects-library offers the most advanced Adobe Audition for PC | Adobe Audition for
 
 
 
